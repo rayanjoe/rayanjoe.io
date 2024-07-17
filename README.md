@@ -24,4 +24,4 @@ Intrigued by what you see? Let's chat about data, AI, and the future of technolo
 
 ---
 
-© 2024 [Your Name]. All Rights Reserved.
+© 2024 Rayan Joseph. All Rights Reserved.
